@@ -1,10 +1,13 @@
-Ramazon - hijriy yil hisobining toʻqqizinchi oyi. Islom dinida Ramazon oyida Alloh Muhammadga Qur’onni vahiy qilgan deb talqin etiladi. Shu sababli, Ramazon muqaddas oy hisoblanadi, bu oy davomida dindorlarga ro'za tutish buyuriladi.
 
-Ramazon - arablarda islomdan avvalgi to'rt muqaddas oydan biri; dastlab yoz fasliga toʻgʻri kelgan. Islom dini joriy etilishi arafasida Makkada Ramazon oyida yaxshi amallar qilish (tahannus) an'ana boʻlgan. Ramazon oyining 27-kuniga o'tar kechasi Muhammad (S.A.V)ga birinchi vahiy kelgan. Ramazonda ro'za tutish hijratdan 17-18 oy keyin, ya'ni qibla tomon o'zgartirilgandan bir oydan so'ng joriy etilgan.
+![alt text for screen readers](https://img.freepik.com/free-vector/realistic-three-dimensional-ramadan-kareem-illustration_52683-57837.jpg "Text to show on mouseover")
+
+Ramazon - hijriy yil hisobining to'qqizinchi oyi. Islom dinida Ramazon oyida Alloh Muhammadga Qur'onni vahiy qilgan deb talqin etiladi. Shu sababli, Ramazon muqaddas oy hisoblanadi, bu oy davomida dindorlarga ro'za tutish buyuriladi.
+
+Ramazon - arablarda islomdan avvalgi to'rt muqaddas oydan biri; dastlab yoz fasliga to'g'ri kelgan. Islom dini joriy etilishi arafasida Makkada Ramazon oyida yaxshi amallar qilish (tahannus) an'ana bo'lgan. Ramazon oyining 27-kuniga o'tar kechasi Muhammad (S.A.V)ga birinchi vahiy kelgan. Ramazonda ro'za tutish hijratdan 17-18 oy keyin, ya'ni qibla tomon o'zgartirilgandan bir oydan so'ng joriy etilgan.
 
 1) hijriy yil hisobining 9-oyi. Islom dinida Ramazon oyida Alloh Muhammad (sav)ga Qur'onni vahiy qila boshlagan, deb talqin etiladi. Shu sababli Ramazon muqaddas oy hisoblanadi, bu oy davomida musulmonlarga ro'za tutish buyuriladi.
 
-Ramazon — arablarda islomdan avvalgi 4 muqaddas oydan biri; dastlab yoz fasliga to'g'ri kelgan. Islom dini joriy etilishi arafasida Makkada Ramazon oyida yaxshi amallar qilish (tahannus) an'ana bo'lgan. Ramazon oyining 27kuniga o'tar kechasi Muhammad (sav)ga Qur'on nozil qilingan (qarang Laylatulqadr). Ramazon oyida ro'za tutish hijraning 2yili joriy etilgan.
+Ramazon - arablarda islomdan avvalgi 4 muqaddas oydan biri; dastlab yoz fasliga to'g'ri kelgan. Islom dini joriy etilishi arafasida Makkada Ramazon oyida yaxshi amallar qilish (tahannus) an'ana bo'lgan. Ramazon oyining 27kuniga o'tar kechasi Muhammad (sav)ga Qur'on nozil qilingan (qarang Laylatulqadr). Ramazon oyida ro'za tutish hijraning 2yili joriy etilgan.
 
 Musulmon mamlakatlarida Ramazonga oid marosim va an'analar har bir o'lkaning o'ziga xos urfodatlaridan kelib chiqqan holda o'tkaziladi.
 
