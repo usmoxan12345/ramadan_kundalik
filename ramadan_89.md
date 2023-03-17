@@ -1,9 +1,11 @@
-## 🌙 Рамазон келса, жаннат эшиклари очилади...
+## 🌙 Ramazon kelsa, jannat eshiklari ochiladi...
+
 ![enter image description here](https://media.islamicity.org/wp-content/uploads/2023/01/ramadan-quran.jpg)
 
-Абу Ҳурайра розияллоҳу анҳудан ривоят қилинади. Расулуллоҳ соллаллоҳу алайҳи васаллам: 
-“Рамазон келса, жаннат эшиклари очилади, дўзах эшиклари ёпилади ва шайтонлар кишанланади”, деганлар (Имом Бухорий, Имом Муслим ривояти).
+Abu Hurayra roziyallohu anhudan rivoyat qilinadi. Rasululloh sollallohu alayhi vasallam:
 
-Яқинларга улашинг!
+“Ramazon kelsa, jannat eshiklari ochiladi, do‘zax eshiklari yopiladi va shaytonlar kishanlanadi”, deganlar (Imom Buxoriy, Imom Muslim rivoyati).
 
-👉 [@Muslim_Duolar](https://t.me/Muslim_Duolar) Телеграм
+Yaqinlarga ulashing!
+
+👉 [@Muslim_Duolar](https://t.me/Muslim_Duolar) Telegram
